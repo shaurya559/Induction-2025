@@ -67,4 +67,14 @@ The p2p lecture start at 10:30 am by seniors in room tcc sem hall . I had my fir
 <br>
 They were very friendly, supportive, and explained everything in a simple way.
 I also got to learn a few new things that I wasn’t aware of before.
-It felt good to interact with them and I’m really looking forward to more such sessions and it ends at 11:30
+It felt good to interact with them and I’m really looking forward to more such sessions and it ends at 11:30<br>
+
+AFTER THAT the lunch brek is started from 11:30am to 12:30pm<br>
+
+At 1pm Dr Priya darshni mam say about universal human value .
+She say Universal Human Values (UHV) are the  and help us live in harmony with ourselves, others, and nature. She include values like truth, love, peace, respect, honesty, trust, compassion, and responsibility. UHV helps us understand the importance of relationships, human dignity, and ethical living.
+It teaches us how to make the right decisions by understanding what is truly valuable in life—not just material success but inner happiness and human connection. Learning these values is important for becoming a good human being and a responsible citizen the lecture is over at 2:30pm <br>
+
+at 2:30 the small session is conducted by cosmic club . they  say about cosmic club . how it works and how to join 
+
+the session is ended at 3:30
