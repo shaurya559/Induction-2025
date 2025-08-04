@@ -57,3 +57,8 @@ Priya darshni mam say some common Universal Human Values include are:
 She say these values are called universal because they are accepted and respected by people all over the world, and they help create a just and peaceful society.<br>
 
  After that the seesion is ended at 1pm
+<h1>DAY 4</h1>
+The chemistry lecture started at 9:30 am by Dr Rajvir kaur mam at tcc sem hall. Firstly she say about science. She say a systematic and organized approach to building and organizing knowledge about the natural world through observation and experimentation.<br>
+Then she say that Chemistry is fundamental to all bodily functions. From the basic building blocks of life like proteins and DNA to the complex processes of digestion and hormonal signaling, chemistry governs everything that happens within our bodies.  After that she say about gndec  .... The lecture was over at 10:30 am<br>
+
+After that p2p lecture is started at 10:30am by seniors.the
