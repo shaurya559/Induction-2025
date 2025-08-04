@@ -21,3 +21,5 @@ Then our HOD of Applied Science, Dr. Harpreet Kaur Grewal, gave a brief speech a
 She gave a speech about being persistant, motivated,being pateint, and to do hardwork towards our goal.
 The session is ended at 3 pm
 <h1>Day 2</h1>
+The English proficiency test will take place from 9:30 to 10:30.
+- The test will be held in Room No. F-112.
