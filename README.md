@@ -36,3 +36,24 @@ A balanced diet helps us stay fit, fight diseases, and maintain mental clarity. 
 From 2pm to 3pm -The event is a session by the Cosmic Club and the launch of induction activities, taking place at the auditorium. <br>
 
 The session is ended at 3pm
+<h1>DAY 3</h1>
+In Auditorium from 9am to 11am - Dr Jaswinder  sing gave a speech on math and science. He gave us a very insightful and engaging lecture in the auditorium. He shared some interesting tricks related to mathematics, which made solving problems much easier and faster. His way of explaining concepts was very clear and fun. Along with math, he also showed us some simple and exciting practicals of physics, which helped us understand the real-world application of theories. Overall, his session was very useful and inspiring for all of us.<br>
+
+At 11am - 1pm - Dr Priya darshni mam gave a speech on Universal Human values. She say Universal Human Values are the fundamental values that are important for every human being, regardless of religion, culture, country, or background. These values help us live in harmony with ourselves, with other people, and with nature.
+
+Priya darshni mam say some common Universal Human Values include are:
+
+1. Truth (Satya) – Always being honest and living with integrity.
+<br>
+2. Love (Prem) – Caring for others, showing compassion and kindness.
+<br>
+3. Peace (Shanti) – Living without conflict; having inner calmness and spreading peace.
+<br>
+4. Non-violence (Ahimsa) – Avoiding harm to others through words, actions, or thoughts.
+<br>
+5. Respect – Treating everyone with dignity, regardless of status or background.
+   <br>
+7. Responsibility – Being accountable for our actions and choices.
+<br>
+She say these values are called universal because they are accepted and respected by people all over the world, and they help create a just and peaceful society.<br>
+ After that the seesion is ended at 1pm
