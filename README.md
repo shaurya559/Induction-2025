@@ -45,14 +45,15 @@ At 11am - 1pm - Dr Priya darshni mam gave a speech on Universal Human values. Sh
 Priya darshni mam say some common Universal Human Values include are:
 1. Truth (Satya) – Always being honest and living with integrity.
 2. Love (Prem) – Caring for others, showing compassion and kindness.
-<br>
+  
 3. Peace (Shanti) – Living without conflict; having inner calmness and spreading peace.
-<br>
+  
 4. Non-violence (Ahimsa) – Avoiding harm to others through words, actions, or thoughts.
-<br>
+   
 5. Respect – Treating everyone with dignity, regardless of status or background.
-  <br>
+   
 7. Responsibility – Being accountable for our actions and choices.
-<br>
+   
 She say these values are called universal because they are accepted and respected by people all over the world, and they help create a just and peaceful society.<br>
+
  After that the seesion is ended at 1pm
