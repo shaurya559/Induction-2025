@@ -19,3 +19,4 @@ Have fun in the college but dont forget to brush up our skills.<br>
 Then our HOD of Applied Science, Dr. Harpreet Kaur Grewal, gave a brief speech about our glorious college, about our aluminies, history of our institution.
 <br>
 She gave a speech about being persistant, motivated,being pateint, and to do hardwork towards our goal.
+<h1>Day 2</h1>
