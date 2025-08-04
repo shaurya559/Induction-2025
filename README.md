@@ -24,7 +24,5 @@ The session is ended at 3 pm
 The English proficiency test will take place from 9:30 to 10:30.
 - The test will be held in Room No. F-112.
 <br>
-
 A math proficiency test is scheduled from 10:30 to 11:30.
-- The test will take place in Room F-112.
-- The test is likely being administered by senior 
+The test will take place in Room F-112. The test is likely being administered by senior 
