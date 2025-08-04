@@ -59,6 +59,15 @@ She say these values are called universal because they are accepted and respecte
  After that the seesion is ended at 1pm
 <h1>DAY 4</h1>
 The chemistry lecture started at 9:30 am by Dr Rajvir kaur mam at tcc sem hall. Firstly she say about science. She say a systematic and organized approach to building and organizing knowledge about the natural world through observation and experimentation.<br>
+
+The p2p lecture start at 10:30 am by seniors in room tcc sem hall . I had my first P2P (Peer-to-Peer) lecture, and it was a wonderful experience. Our seniors took the session and explained important topics like algorithms, compilers, pseudocode, and programming basics.
+They were very friendly, supportive, and explained everything in a simple way.
+I also got to learn a few new things that I wasn’t aware of before.
+It felt good to interact with them and I’m really looking forward to more such sessions and it ends at 11:30
 Then she say that Chemistry is fundamental to all bodily functions. From the basic building blocks of life like proteins and DNA to the complex processes of digestion and hormonal signaling, chemistry governs everything that happens within our bodies.  After that she say about gndec  .... The lecture was over at 10:30 am<br>
 
-After that p2p lecture is started at 10:30am by seniors.the
+The p2p lecture start at 10:30 am by seniors in room tcc sem hall . I had my first P2P (Peer-to-Peer) lecture, and it was a wonderful experience. Our seniors took the session and explained important topics like algorithms, compilers, pseudocode, and programming basics.
+<br>
+They were very friendly, supportive, and explained everything in a simple way.
+I also got to learn a few new things that I wasn’t aware of before.
+It felt good to interact with them and I’m really looking forward to more such sessions and it ends at 11:30
