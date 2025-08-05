@@ -78,7 +78,7 @@ It teaches us how to make the right decisions by understanding what is truly val
 at 2:30 the small session is conducted by cosmic club . they  say about cosmic club . how it works and how to join 
 
 the session is ended at 3:30
-<h1>DAY 4</h1>
+<h1>DAY 5 </h1>
 ENGLISH lecture started by Prof. Manjot kaur in Me sem hall from 9:30am to 10:30am . Firstly she introduced our selves and then she take our introduction . <br>
 
 after that the math lecture is started by  Prof. Rajbir kaur from 10:30am -11:30am
