@@ -86,3 +86,12 @@ she say about basic math concepts. Like matrix, differentiation, integration....
 
 After the math lecture. the BEEE lecture is started by Prof. Mandeep kaur from 11:30am - 12:30pm . She  say about electric current, voltage, resistance, circuit analysis, and the behavior of semiconductor devices.  <br>
  The session is ended at 12:30
+<h1>DAY 6</h1>
+The p2p lecture is started at 9:30am by senior in workshop sem hall.our senior explained important topic of p2p
+. The p2p lecture is ended at 10:30 am <br>
+
+ At 10:30 - 11:30 Prof Jaswant sing gave a speech about cse . He say CSE, in the context of education and careers, generally refers to Computer Science and Engineering. It's a field that combines the principles of computer science with engineering practices to design, develop, and manage computer systems and software. Essentially, it's about using computational thinking to solve real-world problems through technology. <br>
+
+ After that the lunch break is started at 11:30 am to 12:30 pm 
+
+ at 12:30 Dr Arvind  Dhingra  gave a sppech .
