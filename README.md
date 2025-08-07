@@ -95,3 +95,6 @@ The p2p lecture is started at 9:30am by senior in workshop sem hall.our senior e
  After that the lunch break is started at 11:30 am to 12:30 pm 
 
  At 12:30 Dr Arvind  Dhingra  gave a sppech .He say about experience of there life. He say about importance of collage in our life .He also say about atmosphere of collage ...
+ at 3:00pm dr lakhvir sing gave a speech on cml..the lecture is off at 4 pm
+
+ the session is ended at 4 pm
